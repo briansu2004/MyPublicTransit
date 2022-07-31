@@ -19,3 +19,11 @@ Barrie:
 - Waterfront
 - the Scenic Trails
 - Downtown Restaurants in Barrie
+
+### Jul 30 - Aug 1, 2022
+
+![1659150597971](image/README/1659150597971.png)
+
+![1659150653019](image/README/1659150653019.png)
+
+Confirmation # MZ55305664
